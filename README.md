@@ -45,7 +45,7 @@ Confira alguns de nossos equipamentos em ação:
 
 Para mais informações, entre em contato conosco através dos seguintes canais:
 
-- **Email**: [alan.rossi@yahoo.com.br](mailto:alan.rossi@yahoo.com.br)
+- **Email**: alan.rossi @ yahoo.com.br
 - **Telefone**: +55 11 9 6063-0055 (Alan Rossi)
 - **Endereço**:
   Rodovia Índio Tibiriçá, SSP-031, 3.150 - Ouro Fino, Ribeirão Pires - SP, 09442-000
